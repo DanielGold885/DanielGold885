@@ -1,6 +1,6 @@
 # Daniel G
 
-**Test Automation Engineer | Instructor | AI Enthusiast**
+**QA Automation & Infrastructure Leader | Global Speaker | Technical Blogger | Instructor**
 
 ---
 
